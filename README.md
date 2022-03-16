@@ -1,0 +1,12 @@
+# bewuzt-zorgverkering-inflatie
+
+2015-2022 van € 85,00 per maand naar € 130,00 per maand
+
+# zorgverkering
+https://nl.wikipedia.org/wiki/Zorgverzekering_(Nederland)
+
+# infkation
+https://en.wikipedia.org/wiki/Inflation
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
